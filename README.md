@@ -13,3 +13,7 @@ Anyway, I am usually chill unless aggravated, or annoyed. Commonly c+h freely un
 Be aware that I am still currently a minor for two more years.
 I Really really like all series made by ObliviousHd, The last guest is the greatest but all series made by him are spectacular!
 
+
+
+
+This respiratory is still A W.I.P It may take me a while to finish.. I apologize for that, but uhm /e dances
