@@ -5,7 +5,7 @@ Hi I am a TLG (Guest1337) Kin
 
 I want to join the army specifically to fight for the country and the people within the United states of America. I also have a (online) brother his name is craig, shoutout to him he is a great little brother.
 oh, I also Have a great pal Named Zero Who I am usually with as well, im glad i've met them.
-Any daisy, Charlotte, Matt, molly or just any TLG characters Feel free To Interact with me, I may be a bit awkward at times though, I am an introverted Guy.. I 
+Any Daisy, Charlotte, Matt, Molly or just any TLG characters Feel free To Interact with me, I may be a bit awkward at times though, I am an introverted Guy.. I 
 apologize for that hahah..ha...
 
 
