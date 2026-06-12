@@ -10,7 +10,7 @@ apologize for that hahah..ha... Oh! one more thing, I do have a very awesome par
 
 currently 15/5 (15 and a half??) nearly 16 years old!
 
-Anyway, I am usually chill unless aggravated, or annoyed. Commonly c+h freely unless with my brotatoronichip craig.
+Anyway, I am usually chill unless aggravated, or annoyed. Commonly c+h freely unless with my brotatoronichip craig or with my beautiful, caring, loving, perfect significant other of mine.
 Be aware that I am still currently a minor so 18+ folks DNI With me.
 I Really really like all of the series made by ObliviousHd, The last guest is the greatest but all series made by him are spectacular!
 
