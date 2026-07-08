@@ -8,7 +8,7 @@ oh, I also Have a great pal Named Zero Who I am usually with as well, im glad i'
 Any Daisy, Charlotte, Matt, Molly or just any TLG characters Feel free To Interact with me, I may be a bit awkward at times though, I am an introverted Guy.. I 
 apologize for that hahah..ha... Oh! one more thing, I do have a very awesome partner already, so i would appriciate if people do NOT flirt with me.
 
-currently 15/5 (15 and a half??) nearly 16 years old!
+ 16 years old now..yayyy ig or something, idk?
 
 Anyway, I am usually chill unless aggravated, or annoyed. Commonly c+h freely unless with my brotatoronichip craig or with my beautiful, caring, loving, perfect significant other of mine.
 Be aware that I am still currently a minor so 18+ folks DNI With me.
