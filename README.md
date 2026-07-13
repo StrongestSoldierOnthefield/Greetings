@@ -3,7 +3,7 @@
 Hi I am usually known as fred, but i also go by Guest, due to being a heavy TLG (Guest1337) Kin
 
 
-I want to join the army specifically to fight for the country and the people within the United states of America. I also have a (online) brother his name is craig, shoutout to him he is a great little brother.
+I want to join the united state marine corps specifically to fight for the country and the people within the United states of America and to be the best of the best within my family. I also have a (online) brother his name is craig, shoutout to him he is a great little brother.
 oh, I also Have a great pal Named Zero Who I am usually with as well, im glad i've met them.
 Any Daisy, Charlotte, Matt, Molly or just any TLG characters Feel free To Interact with me, I may be a bit awkward at times though, I am an introverted Guy.. I 
 apologize for that hahah..ha... Oh! one more thing, I do have a very awesome partner already, so i would appriciate if people do NOT flirt with me.
