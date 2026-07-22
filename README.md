@@ -5,7 +5,6 @@ Hi I am usually known as fred, but i also go by Guest, due to being a heavy TLG 
 
 I want to join the united state marine corps specifically to fight for the country, the people within the United states of America, and I to be the best of the best within my family. 
 
-friendships/relationship: I have a (online) brother his name is craig, shoutout to him he is a great little brother. I also Have a great pal Named Zero Who I used to usually with as well, although they stopped playin pt for some reason sadly,then i have my very awesome sauceroni partner Rose, I loves them very much <3
 
 Any TLG characters or characters from any fandom i am in please Feel free To Interact with me, I may be a bit awkward at times though, I am an introverted Guy.. I 
 apologize for that hahah..ha... Oh! one more thing, I have a very awesome partner already if you missed it last paragraph, so yeahh i would appriciate it if people do NOT flirt with me.
