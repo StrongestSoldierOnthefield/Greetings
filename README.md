@@ -6,12 +6,11 @@ Hi I am usually known as fred, but i also go by Guest, due to being a heavy TLG 
 I want to join the united state marine corps specifically to fight for the country, the people within the United states of America, and I to be the best of the best within my family. 
 
 
-Any TLG characters or characters from any fandom i am in please Feel free To Interact with me, I may be a bit awkward at times though, I am an introverted Guy.. I 
-apologize for that hahah..ha... Oh! one more thing, I have a very awesome partner already if you missed it last paragraph, so yeahh i would appriciate it if people do NOT flirt with me.
+Any TLG characters or characters from any fandom i am in please Feel free To Interact with me, But be aware that I have a very awesome sauceroni partner, so yeahh do NOT flirt with me.
 
- 16 years old now..yayyy ig or something, idk?
+ 16 years old 
 
-Anyway, I am usually chill unless aggravated, or annoyed. Commonly c+h freely unless with my brotatoronichip craig or with my beautiful, caring, loving, perfect significant other of mine.
+Anyway, I am usually chill unless upset, c+h freely unless i am with my beautiful, caring, loving, perfect significant other of mine.
 Be aware that I am still currently a minor so 18+ folks DNI With me.
 I Really really like all of the series made by ObliviousHd, The last guest is the greatest but all series made by him are spectacular!
 
