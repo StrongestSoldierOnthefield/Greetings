@@ -16,7 +16,8 @@ I Really really like all of the series made by ObliviousHd, The last guest is th
 
 Some hobbies of mine are; drawing, reading, sleeping, painting, watching television/movies, hanging out with friends and making more friends, working out, going on runs/walks or jogs, making others happy to the best of my ability, helping others...uh and i think that's it, yeah...quite a lot I know.
 
-FANDOMS: TLG, Jsab, Blocktales, Forsaken (GOOD SIDE), Roblox myths, Roblox admins, Five night's at freddy's, Horror films/movies, minecraft, call of duty modern warfare ECT..
+FANDOMS: TLG, Jsab, Blocktales, Forsaken (GOOD SIDE), Roblox myths, Roblox admins, Five night's at freddy's, Horror films/movies, minecraft, call of duty modern warfare, Searching for a world that didn't exist (SFAWTDE), TSFTL (the search for the levi), marvel & DC ECT..
+
 I am in quite a lot of fandoms, i am honestly too lazy to type all of them
 
 Also please don't copy or get "inspiration" from my characters that I made on PT, please be original with things and not steal designs from others.
