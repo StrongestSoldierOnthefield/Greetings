@@ -3,7 +3,7 @@
 Hi I am usually known as fred, but i also go by Guest, due to being a heavy TLG (Guest1337) Kin
 
 
-I want to join the united state marine corps specifically to fight for the country, the people within the United states of America, and I to be the best of the best within my family. 
+I want to join the united states army specifically to fight for the country, and to prove my family wrong about being a "lazy Fat fuck".
 
 
 Any TLG characters or characters from any fandom i am in please Feel free To Interact with me I do not bite.
